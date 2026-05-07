@@ -27,7 +27,7 @@
 - 培养**独立思考与解决问题**的能力
 
 ### 🤝 联系我们
-- Email：gs.xiutianzhang25@gzu.edu.cn  
+- Email：[gs.xiutianzhang25@gzu.edu.cn](mailto:gs.xiutianzhang25@gzu.edu.cn)  
 
 ---
 
